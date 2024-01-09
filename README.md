@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @18mariah07
-- 👀 I’m interested in Physiothérapie 
-- 🌱 I’m currently learning ..korean english deutsch .
+- 👀 I’m interested in Physiothérapie because i am 
+- 🌱 I’m currently learning ..korean english deutsch .Ispeack french
 - 💞️ I’m looking to collaborate on ...a doctor or a organisation 
 - 📫 How to reach me ...pm me please  or put a comment 
 - 😄 Pronouns: ...Mariah 
